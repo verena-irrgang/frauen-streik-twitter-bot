@@ -1,2 +1,2 @@
-# benimm-dich
-Benimm Dich, du Frauenzimmer!
+# frauen*streik
+Forderungen des Frauen*streik Bündnisses Berlin
